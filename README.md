@@ -1,1 +1,1 @@
-![troll](https://en.wikipedia.org/wiki/File:Trollface_non-free.png#/media/File:Trollface_non-free.png)
+![troll](https://i.kym-cdn.com/entries/icons/original/000/000/091/TrollFace.jpg)
